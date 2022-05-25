@@ -1,4 +1,4 @@
 - 👋 I’m @kinidozena aka dr.schadenfreude
-- 👀 I’m interested in programming and languages - human and machine
+- 👀 I’m interested in programming and languages - both human and machine
 - 🌱 I’m currently learning programming and automation.
 - 📫 telegram:  @kinidozena
